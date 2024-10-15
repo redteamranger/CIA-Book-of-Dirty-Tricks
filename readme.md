@@ -134,8 +134,9 @@ devices. One especially nasty person also suggested it for use in eye drops.
 I'm not sure about that one though, sight's a precious thing. You'd better
 reserve that one for a very deserving person that shot your dog, wrecked
 your computer, busted you for phreaking, etc.
-
-# Airlines
+
+ 
+ # Airlines
 
 Arrange to have a friend meet you at the terminal gate when you
 deplane. Give your friend your baggage claim checks and have him/her
@@ -227,7 +228,7 @@ After the few necessary seconds of attack, he calmly replaced himself,
 zipped up, and walked away. A bemused security cop nearby tried to hide
 his laughter.
 
-Animals
+# Animals
 
 If your mark is an oily cuss with a credibility problem you should
 easily pull off this stunt. It involves a cop, reporters, SPCA folks and some
@@ -392,7 +393,7 @@ Reportedly, she monitored the halls and windows of that building
 regularly for five months. But more importantly, she also left her tenants to
 their own moral lives.
 
-# Assassination
+# Assassination
 
 Suppose you have a mark whose ill temper has created problems for
 you. Or perhaps this mark is simply an obnoxious nut whose obsessions
@@ -432,7 +433,7 @@ mark loses his/her cool as a result of this dirty trick.
 Bishop says this will also work with state officials, bringing a visit from
 state police or some other law enforcement official.
 
-# Auto Dealers
+# Auto Dealers
 
 If an automobile dealership screws you, on either the car, the deal, or
 the service, don't get angry -- get even. Wait outside the showroom until a
@@ -476,7 +477,7 @@ your bag of sabotage goodies, such as glue, wire cutters, paint, potatoes,
 M80s, etc., you can run amok. Work quietly and quickly. This sort of
 guerrilla warfare can literally wreck a dealer's service reputation.
 
-# Banks
+# Banks
 
 It could be time to make your bankroll. According to Townsend
 Alexander, our financial intelligence agent, you can make good money
@@ -528,7 +529,7 @@ institution for a while. It's quite possible bank officials will have to hire
 someone to drill the lock on the targeted safe-deposit box to remove the
 contents.
 
-# Bikers
+# Bikers
 
 You're walking along a pedestrian sidewalk, and along come a
 bicyclist, churning away his/her spare calories on that nonpolluting
@@ -577,7 +578,7 @@ on their bicycles, and I know bicycles are an in thing today. But maybe if
 those young riders learn some manners early and stay the hell off pedestrian
 walkways, they might grow up to be decent people."
 
-# Books
+# Books
 
 Did anyone ever borrow a book from you and not return it? Our
 private library consultant, Roberta Russell, has a suggestion with an air of
@@ -608,7 +609,7 @@ name] in loving memory of all the sweet children of [Town name]." Paste in
 the bookplates and sprinkle the donated books around the local library. Put
 some in the children section, and others in the religion books.
 
-# Campuses
+# Campuses
 
 Not everyone is hibernating on college campuses. Although it's true
 that many students have become docile zombies, lobotomized by lethal
@@ -661,7 +662,7 @@ under that one. As for the mark, the dumb schmuck had no idea why so
 many people disliked him. But please take his colleagues word for it – he
 deserves every bit of it.
 
-# Carbide
+# Carbide
 
 Having been brought up around hunters and miners, I learned all
 about carbide lamps and carbide fishing early. Working on my grandfather's
@@ -709,7 +710,7 @@ possible backup of gases. A combination of water and carbide has been fed
 into the ventilating systems of various corporate and government buildings,
 also by semi-terrorists who wish to harass the resident bureaucrats.
 
-# Cars
+# Cars
 
 This one's really kiddie Halloween time, but it does work. A bunch of
 old nuts and bolts placed into the wheel well behind the hubcap will make
@@ -922,7 +923,7 @@ riding in the back of the mark's vehicle. He replied, "Then, that passenger
 also has every right to be furious with the dippy mark for pulling out in front
 of you."
 
-# CB Radios
+# CB Radios
 
 Want to send your neighborhood CB nut a message? This nut is the
 CB addict who refuses to filter his/her equipment and thus disrupts TV,
@@ -951,7 +952,7 @@ the pin, making the wound invisible. Just make sure that the pin shortcircuits t
 along the coax between the antenna and the CB set. It does stuttering
 wonders for the transmission.
 
-# Charity
+# Charity
 
 Charity begins at the home of your mark. You simply volunteer
 his/her services to the charity's recruiting chairperson, giving the name and
@@ -982,7 +983,7 @@ the mark by his auto license number. Say you work at one of the stores near
 the collection box and you've seen the mark rob the box several times. You
 can also report this "crime" to the police.
 
-# Cheese
+# Cheese
 
 It's tried and true, but I bet you haven't heard of it since you were a
 kid. This one came from Alabama, the old Limburger-cheese-on-the
@@ -991,7 +992,7 @@ surface for a cheese spread. Or you can simply place some of the same
 substance behind a radiator in a home or office. Once it's burned on, the
 smelly sour effect can last for weeks, despite robust cleaning efforts.
 
-# Child Abuse
+# Child Abuse
 
 I heard a real horror story recently where a truly evil-minded teenager
 [Hmmm...] swore to child-abuse officers in her county that her parents beat
@@ -1008,7 +1009,7 @@ All this leads up to the fact that you can report your mark as a childabuse offe
 authorities. The hassle is unreal. After you've done this, a few anonymous
 letters to the mark's employer about the "child-abuse thing" will help out.
 
-# CIA
+# CIA
 
 Your mark might have sneaky points you never thought about. For
 example, maybe your mark would make a good CIA employee. You could
@@ -1033,7 +1034,7 @@ You can also send in an application in your mark's name for a CIA job
 at the field office in the nearest city. Yes, they are listed in the telephone
 book.
 
-# Classified Ads
+# Classified Ads
 
 Classified advertisements in your local newspaper are inexpensive
 little bullets that can cause major wounds to the mark's psyche if properly
@@ -1120,7 +1121,7 @@ descriptive, and personal than you can with a newspaper advertisement.
 Folks seem to read these very regularly too, as I know from my personal use
 of this community advertising medium with legitimate messages.
 
-# Clergy
+# Clergy
 
 One of the most useful bits of armament in the trickster's arsenal is a
 set of clerical garb. Lenny Bruce proved how financially useful this disguise
@@ -1134,7 +1135,7 @@ outfits when moving dope. In Ireland, weapons and explosives are
 smuggled by kindly-looking middle-aged persons disguised as religious
 figures.
 
-# Coins
+# Coins
 
 If consumer attorney Dale Richards is correct, more Americans lose
 money to coin-operated vending machines than lose money gambling or
@@ -1177,7 +1178,7 @@ Trinidad penny.
 You might be able to have friends who travel abroad get you rolls of
 these coins for collection purposes or to make jewelry.
 
-# Computers
+# Computers
 
 The computer won't really be human until it can make a mistake, then
 cover up by blaming the error on some other helpless machine. More than
@@ -1209,7 +1210,7 @@ controls the data on these tapes, you might try passing a portable
 electromagnet back and forth across the tapes. It erases them just the way a
 bulk eraser cleans off your audio tapes at home. In many cases computertape records are the only records kept by many companies and schools.
 
-# Contractors
+# Contractors
 
 Just suppose your new home wasn't quite what the contractor ordered
 and promised. If you're lucky, you'll discover this sad fact before he's done
@@ -1236,7 +1237,7 @@ allies have access to that concrete before it is poured, add concentrated
 hydrochloric acid to it. Hank claims, "I've seen it work -- it causes slow but
 continual deterioration of the structure from corrosion."
 
-# Credit Cards
+# Credit Cards
 
 Designed as a credit convenience for consumers and a big profit
 turner for business, credit cards are impersonal pieces of plastic whose
@@ -1293,7 +1294,7 @@ without benefit of forwarding address. Despite my doubts, several
 corporations I asked denied that they passed along these losses to the rest of
 us in the form of outrageous interest charges.
 
-# Delivery Of Consumables
+# Delivery Of Consumables
 
 For years kids have ripped off beer distributors' trucks, pizza wagons,
 etc. The scam is to call the place from a pay phone and give them a fake
@@ -1319,7 +1320,7 @@ better. He blames the drivers, and they get mad and figure if they're gonna
 get blamed, they might as well steal beer from him. That way we multiply
 our efforts."
 
-# Dirty Old Men
+# Dirty Old Men
 
 If you know some jerk who's a terminal lecher, not just a dirty old
 man, but a truly, grossly obnoxious swine, the following is a sure-fire
@@ -1379,7 +1380,7 @@ to dazzle, pick up, and seduce your mark. This scam has been pulled off
 successfully by at least four people I know personally. It is not that hard if
 you plan, bargain, and buy ahead.
 
-# Drugs
+# Drugs
 
 Once, a very close friend of mine was badly hurt by a former
 employee who not only had been stealing from the company, but when the
@@ -1432,7 +1433,7 @@ As a postgraduate version of this scam, Harvey used to send a
 package containing some suspicious-looking white crystalline powder
 (sometimes with a touch of brown) using the same bit just described.
 
-# Environmental Rapists
+# Environmental Rapists
 
 If you dislike land rapists, such as big developers, big real estaters,
 gas and oil drillers, etc., then your first order of business is to read Edward
@@ -1561,7 +1562,7 @@ As a postscript, he enjoyed this activity so much that he built dozens
 of the spike devices and became a traveling one-man hit squad, placing the
 traps whenever he saw evidence of the heavy water-tank trucks.
 
-# Explosives
+# Explosives
 
 Now that the feds have outlawed fireworks, you'd better save all the
 M80s you can find. Extremely versatile devices, M80s are excellent
@@ -1618,7 +1619,7 @@ jackets -- together and wrap them with black plastic tape. Connect this with
 some coiled wiring to a ticking alarm clock and place it so your mark will
 get the full visual and aural effect.
 
-# Fillers
+# Fillers
 
 Trickster Aynesworth Belin is thrilled with the recent introduction of
 the super-foam products. These are urethane-and-resin compounds, usually
@@ -1641,7 +1642,7 @@ clerk told me, "Most [buyers] are young kids...got no good use in mind."
 I bet some of them have a very good use to mind. What can I say but,
 "Try it, you'll like it," even if the mark won't?
 
-# Forgery
+# Forgery
 
 Forgery is a fine art form, very useful to the trickster. During World
 War II, for example, the British Security Coordination often forged
@@ -1654,7 +1655,7 @@ reading in A MAN CALLED INTREPID. Another excellent reference is
 THE NEW PAPER TRIP, which will give you everything you need to know
 about forging to get even.
 
-# Garage Sales
+# Garage Sales
 
 Ever have a garage sale? Ever been to one? They're incredible, and
 they seem to bring out the most in worst people. Even I, a thick-skinned,
@@ -1685,7 +1686,7 @@ get them to stop calling me. He pledged he would and told me wearily,
 'Buddy, I know just how you feel. I'll surely take care of it for you.' I had
 no trouble after that, so neither did he."
 
-# Gases
+# Gases
 
 A serious dirty trickster should have a supply of ammonium sulfide.
 This liquid is loads cheaper to buy than milk, booze, or gasoline. It smells
@@ -1733,7 +1734,7 @@ why you would use such tactics is your own business, of course. But at
 times when people or institutions have done you dirty -- a dose or so of
 noxious gas may help set the record straight for you.
 
-# Graffiti
+# Graffiti
 
 Contrary to popular belief, some people -- usually the creepy ones you
 want for this stunt -- do call names and numbers found in bar restrooms.
@@ -1780,7 +1781,7 @@ GET MORE HEAD; SUCK MY TAILPIPE; HONK IF YOU'RE HORNY;
 HOORAY FOR THE KKK; or DEUTSCHLAND UBER ALLES. Stickers
 featuring swastikas or Soviet flags can also be used creatively.
 
-# Highways
+# Highways
 
 An activist can have fun on the roadway, too. Can you imagine the
 damage possible if one were to substitute a road sign that read, GROSS
@@ -1832,7 +1833,7 @@ counter-abuse program."
 Check the "Joggers" section of this book to learn about the OSS tire
 spikes of World War II infamy.
 
-# Homes
+# Homes
 
 All sorts of things have homes -- snails, snakes, groundhogs, weasels,
 Japanese beetles, even marks. One vengeful way of getting even with a
@@ -1951,7 +1952,7 @@ an apartment. A serious illness to an infant child, traced directly to the
 landlady's refusal to follow sanitary laws, triggered the nasty "bugging" by
 the renter.
 
-# Hookers
+# Hookers
 
 In many cities independent business people have set up a personal
 service whose employees make housecalls. These paid friends come in all
@@ -1974,7 +1975,7 @@ cop was especially hypocritical and nasty about honest working girls: He'd
 fully and freely sample the services before busting and totally prosecuting
 the servicer. He got his, so to speak.
 
-# Hotels
+# Hotels
 
 Suppose you are staying at a hotel and get into a bad beef over the
 poor quality of the meal you get in their restaurant. After trying to be
@@ -2025,7 +2026,7 @@ days, the mark will be aware that something is wrong. A few more days,
 and he'll be sure. Left unattended, this stunt will provide the mark with a
 mass of pet maggots to raise.
 
-# Insurance Companies
+# Insurance Companies
 
 In the intelligence business, access to insurance company files is
 regarded as an operational goldmine. A former executive explains, "These
@@ -2074,7 +2075,7 @@ rates! He cursed me, too.
 Don't ever pity or sorrow for insurance companies. They make more
 profit in an hour than any of us make in salary in a year.
 
-# IRS
+# IRS
 
 A veteran dirty trickster named Michael Mertz has something good to
 say about the Internal Revenue Service -- it can be used to furnish a hard
@@ -2118,7 +2119,7 @@ themselves in court. I got this idea from a man who worked for a company
 that did fight IRS in court and won big -- through an honest IRS error.
 Think what could happen to IRS if you fed them a dishonest error!
 
-# Joggers
+# Joggers
 
 Overweight and overwrought motorists drive by in their Detroit
 Dinosaurs, pass a jogger, and mutter, "Damn stupid schmuck." It's the
@@ -2171,7 +2172,7 @@ garish-hued spray paint.
 These can be directed against attackers'
 automobiles.
 
-# Laundromats
+# Laundromats
 
 In addition to the dryer for a pizza oven, as outlined in another section
 of this book, you can use laundromats to harass an individual mark, or the
@@ -2191,7 +2192,7 @@ Small nails or staples driven partly into chairs make good items for
 customers to snag themselves and their clothing on, for example. And
 vending machines can be made to steal money from patrons.
 
-# Lawns
+# Lawns
 
 Our outdoor correspondent, Lother Gout, came up with a scheme to
 hassle your mark's lawn. It's a simple matter of spilling quantities of tomcat
@@ -2247,7 +2248,7 @@ convince the mark that he, his family, and home are now radiation victims.
 Obviously, you can't use this if the mark's house is more than twenty years
 old, because nuclear waste dumps weren't built much before then.
 
-# Lawyers
+# Lawyers
 
 Punxy Phil Ferrick decided to get back at a dishonorable attorney who
 decided to try hoodwinking the public by becoming a politician. Ferrick got
@@ -2294,7 +2295,7 @@ sometimes use the Xerox machine and routine forms, too. It saves time and
 money. It will easily fool the target and will probably force his or her
 attorney to at least follow it up."
 
-# License Plates
+# License Plates
 
 There are many sophisticated and clever ways to obtain additional
 vehicular license plates that aren't registered in your real name. However,
@@ -2304,12 +2305,10 @@ removes one from someone's car or truck. That simple. This is also highly
 illegal. But if you're careful and use a bit of common sense, can you think of
 a simpler and safer way of getting the extra plates you need for dirty tricks?
 
-# MA Bell
+# MA Bell
 
 Did you ever see those office signs that say, THINK?
 telephone-company office I visited, I saw signs saying, SNEER.
-
-In one
 
 People have been messing with Ma Bell for as long as that corporate
 dictator has been monopolizing telephone service. For years stories have
@@ -2422,7 +2421,7 @@ through equipment designed for six volts. He says this will knock out
 thousands of other telephones and the main switchboard, "if all goes right."
 Even if his numbers are somewhat exaggerated, you've had a good day.
 
-# Mail Drops
+# Mail Drops
 
 These are essential if you're going to carry on any sort of
 correspondence with a mark or with suppliers of services and equipment.
@@ -2441,7 +2440,7 @@ carrying off a very plausible denial. You'd better think this one through
 before involving another person. Deniability can be a tough rap for an
 amateur.
 
-# Mail
+# Mail
 
 The Ku Klux Klan has some interesting strategies for spreading terror.
 One of these is to collect from regional newspapers clippings of unsolved
@@ -2515,7 +2514,7 @@ planning and implementing things like this. He suggests a chemical tear-gas
 powder heavily laced into an envelope, noting, "It will clear a mailroom or
 an office in minutes."
 
-# Marriage
+# Marriage
 
 Carol Sludge and a friend decided they should stage manage an entire
 wedding for a mark. So they did. She handled the gown and bridesmaids'
@@ -2573,7 +2572,7 @@ give them a complete description of the car that will carry the
 bridal couple on the honeymoon. Report that the couple and the
 car are really dope mules, that is, couriers of the drug trade.
 
-# Media
+# Media
 
 The mass media -- newspapers, radio, television, and magazines -- can
 be helpful tools in getting even, or they can be your mark in a dirty trick. I
@@ -2654,7 +2653,7 @@ person. That conversation would be interesting to hear.
 Bulova says that this will work with magazines and trade publications,
 as well. He advocates an entire string of such gifts.
 
-# Medical
+# Medical
  
 Either steal real medical test-report forms from a hospital, clinic, or
 laboratory or have a friend get them for you. If this doesn't work, a trusted
@@ -2739,7 +2738,7 @@ friend, he or she is part of the scam and will pretend to be outraged
 about the whole business. Either way, the medical facility is the real
 mark.
 
-# Military
+# Military
 
 While serving as a guest of Uncle Sam, I had some intelligence
 assignments. There I found out that there are two types of intelligence -military and human. Or as Groucho Marx said, "Military intelligence is a
@@ -2828,7 +2827,7 @@ you failed to register. I guess I don't have to list the reasons why someone
 might wish to get even with the Selective Service system or a particular
 board.
 
-# Motion Pictures
+# Motion Pictures
 
 Hugh Troy was a famed artist who was also a hardcore practical joker.
 Once, the manager of a motion-picture theater offended Troy. Troy went
@@ -2872,7 +2871,7 @@ into the theater early and, while no one else is around, place gooey chewing
 gum on random seats. Pick seats away form the aisle or ceiling safety lights.
 You may also use a slow-drying glue on the seats.
 
-# Municipal Services
+# Municipal Services
 
 A former CIA operative who specialized in sabotage shared a couple
 of theoretical ideas about some cheap tricks. He suggests that if a
@@ -2884,7 +2883,7 @@ He has an excellent caveat to go with this, though: "If you do this sort
 of thing needlessly and unprovoked, it is nothing more than criminal
 vandalism, which is stupid, and you deserve what you get if you're caught.
 
-# Neighborhoods
+# Neighborhoods
 
 Be the first in your mark's neighborhood to become a blockbuster. It's
 time to fuss up the mark's neighbors again. Find a real estate agency that
@@ -2909,7 +2908,7 @@ and both white guys blanched. No further words were exchanged as the
 married couple left the store. Two days later my friend called a black real
 estate agency. You just read about what happened next.
 
-# Notary Seal
+# Notary Seal
 
 Possession of or access to a notary seal is vital to a trickster. To the
 average layperson and common lawyer, the mere fact of a notary seal on a
@@ -2932,7 +2931,7 @@ also get a couple of other official-looking dies. Commercially and openly,
 you can obtain blank dies with state logos, or you can get one that looks like
 a U.S. eagle. All sorts of possibilities exist.
 
-# Oil Companies
+# Oil Companies
 
 The soaring oil prices and lack of leadership got so bad late in 1979
 that all the dedicated and honest congresspersons got together to protest big
@@ -3090,7 +3089,7 @@ two-gallon buckets of that gunk down into their bulk tanks."
 He said he has also used several gallons of refurbished solid wastes,
 known as sludge, as another additive for the oil-company products.
 
-# Thomas Jefferson
+# Thomas Jefferson
 
 A quote by Thomas Jefferson can be used to confuse your friends or
 critics if they question your activities as a dirty trickster. A very sharp man
